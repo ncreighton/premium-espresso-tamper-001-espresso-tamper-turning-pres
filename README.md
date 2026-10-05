@@ -1,0 +1,2 @@
+# premium-espresso-tamper-001-espresso-tamper-turning-pres
+Tired of scattered notes and lost measurements for your custom espresso tamper projects? Your turning and press-fit workshop deserves a central hub.  This Notion template transforms chaos into clarity, giving you a dedicated workspace to manage every step of tamper turning and press-fit assembly. From material sourcing to fit tolerances, track ever
